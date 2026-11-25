@@ -1,0 +1,1 @@
+# buatgurukubyrizkik6
